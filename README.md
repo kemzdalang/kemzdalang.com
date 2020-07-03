@@ -1,2 +1,2 @@
 # kemzdalang.com
-chord gitar dan Tutorial blogger
+Tutorial blogger dan Multi Sharing
